@@ -4,8 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
-https://i.pinimg.com/564x/56/9e/63/569e630810caf56f4fb0080799870a6a.jpg![Uploading image.png…]()
-
+🦖🐠🐤
 
 <!---
 safiraryzkar/safiraryzkar is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
