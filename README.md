@@ -1,4 +1,5 @@
-![tumblr_c504d39a38299afcf99cc930e883a383_a08d6f86_2048](https://github.com/safiraryzkar/Readme/assets/144891268/99b8efa9-2451-43d2-8581-d554542d0662)
+![4628412936411a13b2b1fee6b400f566](https://github.com/safiraryzkar/Readme/assets/144891268/7c6dc6ab-db6c-4cb5-b820-effdfee93204)
+
 
 <!---
 
