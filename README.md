@@ -1,6 +1,7 @@
 Check This Out! 
 
-![4628412936411a13b2b1fee6b400f566](https://github.com/safiraryzkar/Readme/assets/144891268/7c6dc6ab-db6c-4cb5-b820-effdfee93204)
+<img width="428" alt="Screenshot 2024-05-28 at 11 39 13" src="https://github.com/safiraryzkar/Readme/assets/144891268/755f946d-ee6f-48e2-99ee-b38cee14978c">
+
 
 
 <!---
